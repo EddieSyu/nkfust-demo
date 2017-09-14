@@ -8,4 +8,4 @@
 
 ![](demo.jpg "good")
 
-[![Everything Is AWESOME](https://img.youtube.com/vi/StTqXEQ2l-Y/0.jpg)](https://www.youtube.com/watch?v=StTqXEQ2l-Y "Everything Is AWESOME")
+[![Good!!!!!!!!!!!](http://img05.tooopen.com/images/20150925/tooopen_sy_143684733881.jpg)](https://www.youtube.com/watch?v=StTqXEQ2l-Y "Everything Is AWESOME")
